@@ -3,8 +3,8 @@
  
 🎓 Estudio **Ingeniería de Sistemas** 
 
-  Me gusta el futbol _ mi me gusta la aventura. 
+  Me gusta el futbol _ tambien me gusta la aventura extrema. 
 
-"Mi relación con la tecnología es seria... 
+"Mi relación con la carrera es seria... 
 
 ¡y a veces complicada, como cualquier relación!" 😉.
