@@ -1,4 +1,4 @@
-## HOALA 👋
+## HOLA 👋
  !SALUDOS! SOY EDWIN COAQUIRA SANTOS.
  
 🎓 Estudio **Ingeniería de Sistemas** 
